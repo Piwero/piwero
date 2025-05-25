@@ -3,7 +3,7 @@
 
 🤖 My username is **Piwero**
 
-👨‍💻 My name is **Jose Ignacio Piñero** -> https://name.pn/jose-pinero
+👨‍💻 My name is **Jose Ignacio Piñero** (Also go by Nacho)-> https://name.pn/jose-pinero
 
 ---
 Github Stats 📊
